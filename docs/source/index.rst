@@ -487,7 +487,7 @@ https://deadreckoninggame.com/index.php/User:Vip8kbetcom
 https://herpesztitkaink.hu/forums/users/vip8kbetcom/
 https://xnforo.ir/members/vip8kbetcom.57780/#about
 https://www.adslgr.com/forum/members/211788-vip8kbetcom
-https://forum.opnsense.org/index.php?action=profile;area=forumprofile
+https://forum.opnsense.org/index.php?action=profile;area=forumprofile;u=49235
 https://slatestarcodex.com/author/vip8kbetcom/
 http://pantery.mazowiecka.zhp.pl/profile.php?lookup=24379
 https://community.greeka.com/users/vip8kbetcom
